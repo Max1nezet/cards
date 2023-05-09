@@ -2,4 +2,4 @@
 Infinity cards
 
 
-use your code redactor for open//// thanks!!!!
+use your code redactor to open//// thanks!!!!
